@@ -1,1 +1,0 @@
-# Imparare-la-Raccolta-Differenziata
